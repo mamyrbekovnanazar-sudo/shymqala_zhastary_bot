@@ -1,0 +1,1 @@
+# shymqala_zhastary_bot
